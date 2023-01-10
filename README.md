@@ -1,2 +1,1 @@
-# ddos
-ddos
+# hack gamee
